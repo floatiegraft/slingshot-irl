@@ -5,6 +5,7 @@
 - I do not usually int first unless it's with friends, no! I don't hate you anon, i simply just am shy.
 - Everyone is free to cuddle & hide freely, this is heavily enc as i seek comfort even if i am not that talkitive
 - I'd prefer if you whisper as it gets my attention more easier, i am fond of compliments either way! :)
+- Kisses, boops, nuzzles are okay!
   
 *info for self*
 - You can call me the names and pronouns stated in bio only, names outside of those 2 will only be used by friends
