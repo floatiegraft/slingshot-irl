@@ -20,6 +20,7 @@
 
 *Additional info for self*
 - I have a really bad fandom hyperfixation, i mostly base my ponies off of fandoms i'm in so sorry that you won't recgonize maybe some of them.
+  (Phighting, mcARGS, transformers, fnaf, animal hospital, AVA, among us, eddsworld, DOD, DC & Marvel, GNB, regretevator, etc,,)
 - I am kin many, AUS red, AUS Blue, Player AUL, Slingshot Phighting, and a lot more unlisted kins.
 - I am a yumeshipper, i will not publically list my yumeships but this is only here for people who foam from the mouth hearing the word yumeship.
 - Please do not vent to me unless you're a friend of mine, yet if you are a friend of mine reassure to me that you can vent before you do end up doing so. I will reassure to you if i could vent also. 
